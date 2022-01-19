@@ -1,3 +1,3 @@
 # polygon1
 
-yestarday all y troubles seemed  so far away
+yestarday all my troubles seemed  so far away
